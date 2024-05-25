@@ -74,6 +74,9 @@ Instructions:
 ### Grilled Chicken Sandwich
 
 Ingredients:
+- garlic powder
+- smoked paparika 
+- drird oreegano 
 - 2 boneless, skinless chicken breasts
 - Salt and pepper to taste
 - 2 tablespoons olive oil
