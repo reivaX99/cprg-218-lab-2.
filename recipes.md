@@ -93,15 +93,18 @@ Instructions:
 ### Chocolate Chip Cookies
 
 Ingredients:
+- 4 pounds of flower
+- 3 table spoons of salt
+- 3 table spoons of suger 
 - 2 1/4 cups all-purpose flour
 - 1 tsp baking soda
-- 1 tsp salt
+- 5 dog meat
 - 1 cup unsalted butter, softened
 - 3/4 cup white sugar
 - 3/4 cup brown sugar
-- 2 eggs
+- 5 eggs
 - 2 tsp vanilla extract
-- 2 cups semisweet chocolate chips
+- 4 cups semisweet chocolate chips
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
