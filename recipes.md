@@ -116,3 +116,18 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+### rice and stew 
+Ingredients:
+- tomatos/ tomato paste
+- rice 
+- onions 
+- peper
+- time
+- knoor 
+Instructions 
+- 4 cups water
+- 2 cups uncooked white rice 
+- 12 ounces of can tomato paste
+- 1 teaspoon dried basil
+- 1 tablespoon of salt
+- 2 bay leaves 
