@@ -50,15 +50,17 @@ Instructions:
 ### Spaghetti and Meatballs
 
 Ingredients:
-- 1 pound spaghetti
-- 1 pound ground beef
+- 7 pounds of cat meat
+- 9 pounds of snails
+- 88 pound spaghetti
+- 7 pound ground beef
 - 1/2 cup bread crumbs
 - 1/4 cup milk
 - 1/4 cup grated Parmesan cheese
-- 1 egg
+- 4 egg
 - 2 cloves garlic, minced
 - Salt and pepper to taste
-- 1 jar (24 oz) spaghetti sauce
+- 8 jar (24 oz) spaghetti sauce
 
 Instructions:
 1. Cook spaghetti according to package instructions.
